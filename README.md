@@ -1,2 +1,2 @@
-# StarBetCoin
-SportwettenCoin 
+# StarBet69
+Sportwetten
